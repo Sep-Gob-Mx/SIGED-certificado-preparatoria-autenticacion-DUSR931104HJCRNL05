@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-DUSR931104HJCRNL05
+DUSR931104HJCRNL05
